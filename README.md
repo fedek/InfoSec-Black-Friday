@@ -48,7 +48,7 @@ https://store-us.vmware.com/
 30% off new licenses, 19% off upgrades.  No code required
 
 Faraday\
-https://faradaysec.com/landing-black-friday/
+https://faradaysec.com/landing-black-friday/  
 30% OFF and Free training on new licenses.
 
 ## Books:
